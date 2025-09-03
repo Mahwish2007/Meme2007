@@ -1,4 +1,4 @@
-# 👩‍💻 Mahwish Khalid Awan
+# 👩‍💻 MK 
 
 **🎓 Master's Student in Cybersecurity & Penetration Testing**  
 **📍 Based in the UAE | 🌐 Aspiring Cybersecurity Professional**
